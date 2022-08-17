@@ -1,1 +1,22 @@
 # Informe-tarea-7
+[![resumen-13-14-00001.jpg](https://i.postimg.cc/d3hVZNxJ/resumen-13-14-00001.jpg)](https://postimg.cc/wRdpS2zr)
+[![resumen-13-14-00002.jpg](https://i.postimg.cc/fT0bwFdK/resumen-13-14-00002.jpg)](https://postimg.cc/tYpbkB2Z)
+[![resumen-13-14-00003.jpg](https://i.postimg.cc/bvLyCjXz/resumen-13-14-00003.jpg)](https://postimg.cc/SX2bR3N5)
+[![resumen-13-14-00004.jpg](https://i.postimg.cc/cHHsP5Zf/resumen-13-14-00004.jpg)](https://postimg.cc/DW9kX6Sz)
+[![resumen-13-14-00005.jpg](https://i.postimg.cc/k4pnCFXz/resumen-13-14-00005.jpg)](https://postimg.cc/7GSvMzzn)
+[![resumen-13-14-00006.jpg](https://i.postimg.cc/QNvTkckf/resumen-13-14-00006.jpg)](https://postimg.cc/hhbvKzYm)
+[![resumen-13-14-00007.jpg](https://i.postimg.cc/pX8n0ysR/resumen-13-14-00007.jpg)](https://postimg.cc/yk1dx6qb)
+[![resumen-13-14-00008.jpg](https://i.postimg.cc/KYckvfx8/resumen-13-14-00008.jpg)](https://postimg.cc/Sn5NgWnB)
+[![resumen-13-14-00009.jpg](https://i.postimg.cc/02gzJPP3/resumen-13-14-00009.jpg)](https://postimg.cc/vDzYJR1L)
+[![resumen-13-14-00010.jpg](https://i.postimg.cc/TYrpVFPP/resumen-13-14-00010.jpg)](https://postimg.cc/fJRzZHm4)
+[![resumen-13-14-00011.jpg](https://i.postimg.cc/4NJT0S5y/resumen-13-14-00011.jpg)](https://postimg.cc/WtfKFSxc)
+[![resumen-13-14-00012.jpg](https://i.postimg.cc/yNSq94VQ/resumen-13-14-00012.jpg)](https://postimg.cc/4KZFk0HV)
+[![resumen-13-14-00013.jpg](https://i.postimg.cc/050T7Css/resumen-13-14-00013.jpg)](https://postimg.cc/c66kSwC9)
+[![resumen-13-14-00014.jpg](https://i.postimg.cc/hP4Hs7D7/resumen-13-14-00014.jpg)](https://postimg.cc/14TC5XN9)
+[![resumen-13-14-00015.jpg](https://i.postimg.cc/wTWnGTM4/resumen-13-14-00015.jpg)](https://postimg.cc/KRM9Kbnt)
+[![resumen-13-14-00016.jpg](https://i.postimg.cc/Z5CXttyb/resumen-13-14-00016.jpg)](https://postimg.cc/QFZf1zbw)
+[![resumen-13-14-00017.jpg](https://i.postimg.cc/RZyyvscc/resumen-13-14-00017.jpg)](https://postimg.cc/cv7XmckH)
+[![resumen-13-14-00018.jpg](https://i.postimg.cc/7Lzch3Vj/resumen-13-14-00018.jpg)](https://postimg.cc/HJp3P7Ft)
+[![resumen-13-14-00019.jpg](https://i.postimg.cc/63NPv8bq/resumen-13-14-00019.jpg)](https://postimg.cc/HJB3Gkg1)
+
+Link: https://www.youtube.com/watch?v=oRPq2cefL40
